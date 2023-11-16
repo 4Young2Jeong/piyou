@@ -1,4 +1,4 @@
-# <img src="https://avatars.githubusercontent.com/u/151035656?s=40&v=4" width="40"> 4Young2Jeong
+# 아이들의 식사친구, 피유 🏆
 
 # :family: 팀 소개
 
